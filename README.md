@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jason Miles @jmiles17
-- 👀 I’m interested in blockchain and AI
+- 👀 I’m interested in blockchain and AI, but am looking to build the future wherever I am needed
 - 📫 How to reach me: milesjay021@gmail.com
 
 <!---
